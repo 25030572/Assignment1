@@ -8,4 +8,4 @@
 - 📫 Email: 25030364@siswa.unimas.my
 ## 👨‍💻 Group Member 2:
 - 🎓 Amanina binti Abdul Rahman
-- 📫 Email: 250305752@siswa.unimas.my
+- 📫 Email: 25030572@siswa.unimas.my
